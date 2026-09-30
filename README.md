@@ -13,4 +13,4 @@ It is common practice for customers to check out online finance tools even befor
 
 At Tim Moran Ford, customers can get financial resources conveniently at their fingertips. We have online tools that empower customers to complete a good part of their financing work even before they come to our dealership. Additionally, we provide customers the opportunity to engage our dealership financial team to further assist them with their financing needs.
 
-Thinking about purchasing your next vehicle? Check out Tim Moran Ford's financing and get prequalified to see what vehicle options are available to you!
+Thinking about purchasing your next vehicle? Check out [Tim Moran Ford's financing]([url](https://www.timmoranford.com/finance-department)) and get prequalified to see what vehicle options are available to you!
