@@ -1,7 +1,7 @@
 # Tim-Moran-Ford-Financing
 Getting a ride can be fun. Knowing your funding options can help ease the hassle of getting a new ride. Getting a new Ford, or another vehicle for that matter, can seem like an overwhelming process. Finance options can help you prepare for the journey even before you step into the dealership.
 
- Options at Tim Moran Ford Finance give the customer an opportunity to preview a good portion of the financing process. We give customers the opportunity to pre-qualify, view available vehicles, and decide on a potential monthly payment based on an online loan or lease calculator. Tim Moran Ford gives customers the opportunity to begin an online finance application.
+ Options at Tim Moran Ford Finance give the customer an opportunity to preview a good portion of the financing process. We give customers the opportunity to pre-qualify, view available vehicles, and decide on a potential monthly payment based on an online loan or lease calculator. [Tim Moran Ford]([[url](https://www.timmoranford.com/finance-department)](https://www.timmoranford.com/finance-department)) gives customers the opportunity to begin an online finance application.
 
 Make Informed Decisions
 
